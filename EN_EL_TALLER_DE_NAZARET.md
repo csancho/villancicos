@@ -2,36 +2,44 @@
 ## EN EL TALLER DE NAZARET
 
 <span style="color: red;">**Sol**</span>                                        <span style="color: red;">**Re**</span>                           <span style="color: red;">**Sol**</span>
+
 En el taller de Nazaret, pequeño y pobre taller, 
 
 <span style="color: red;">**Sol**</span>                                        <span style="color: red;">**Re**</span>                           <span style="color: red;">**Sol  Sol7 **</span>
+
 en su labor está José y el niño quiere aprender 
 
 <span style="color: red;">**Do**</span>                <span style="color: red;">**Sol**</span>               <span style="color: red;">**Re**</span>                            <span style="color: red;">**Sol**</span>
+
 LABORA Y CANTA LA ESPOSA DEL CARPINTERO 
 
 <span style="color: red;">**Do**</span>                     <span style="color: red;">**Sol**</span>               <span style="color: red;">**Re**</span>                       <span style="color: red;">**Sol**</span>
+
 Y EL MUNDO ENTERO SONRIE Y CANTA TAMBIÉN 
 
 <span style="color: red;">**Sol**</span>                                        <span style="color: red;">**Re**</span>                        <span style="color: red;">**Sol**</span>
+
 En el taller de Nazaret, pequeño y pobre taller, 
 
-<span style="color: red;">**Sol**</span>                                        <span style="color: red;">**Re**</span>                        <span style="color: red;">**Sol   Sol7 **</span> 
+<span style="color: red;">**Sol**</span>                                        <span style="color: red;">**Re**</span>                        <span style="color: red;">**Sol   Sol7 **</span>
+
 silencio y paz, amor y fe; Jesús, María y José. 
 
 <span style="color: red;">**Do**</span>                <span style="color: red;">**Sol**</span>
+
 LABORA Y CANTA ... 
 
 <span style="color: red;">**Sol**</span>                                        <span style="color: red;">**Re**</span>                        <span style="color: red;">**Sol**</span>
+
 En el taller de Nazaret, pequeño y pobre taller, 
 
-<span style="color: red;">**Sol**</span>                                        <span style="color: red;">**Re**</span>                        <span style="color: red;">**Sol   Sol7 **</span> 
+<span style="color: red;">**Sol**</span>                                        <span style="color: red;">**Re**</span>                        <span style="color: red;">**Sol   Sol7 **</span>
+
 verás a Dios jugar, crecer, rezar y obedecer. 
 
 <span style="color: red;">**Do**</span>                <span style="color: red;">**Sol**</span>
+
 LABORA Y CANTA ....
-
-
 
 ### **Notas**
 

@@ -3,13 +3,19 @@
 
 
 <span style="color: red;">**Do**</span>                                             <span style="color: red;">**Sol**</span>
+
 A Belén camina la Virgen María
-                                                       <span style="color: red;">**Do**</span>
+
+​                                                       <span style="color: red;">**Do**</span>
+
 y a San José lleva en su compañía.
 
 ​									<span style="color: red;">**Sol**</span>
+
 Compañía más grande no la ha de encontrar
+
 <span style="color: red;">**Do**</span> 			<span style="color: red;">**Sol**</span> 	      <span style="color: red;">**Do**</span>
+
 antes de las doce a Belén llegar.
 
 Iban caminando con admiración
